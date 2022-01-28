@@ -1,1 +1,1 @@
-# part2.github.io
+# part2.com
